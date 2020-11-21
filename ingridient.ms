@@ -1,0 +1,1 @@
+500 gm fish fillets,250 gm potato,1 egg,1/2 teaspoon salt,1/2 cup breadcrumbs,1 cup all purpose flour,1 teaspoon baking powder,1 cup milk,black pepper as required,2 cup refined oil
